@@ -1,4 +1,4 @@
-Node.js developer and Computer Science Student at Cardiff University
+Software engineer intern @Barclays | Third year Computer Science Undergrad @CardiffUniversity
 
 
 ## 🌐 Socials:
